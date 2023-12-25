@@ -1,2 +1,0 @@
-# HyderabadLifeInsurance.github.io
-##tette
